@@ -15,7 +15,7 @@
 - 👨‍💻 As a CS student, I'm constantly learning and exploring new technologies to improve my skills.
 - 💬 Ask me about my experience as a student at ENSA-K.
 - ⚡ Fun Fact: I'm a coffee enthusiast and my perfect day would start and end with a cup of coffee.
-- 👨‍💻 Check out my portfolio at https://yousef-dergham.netlify.app/ to see some of the projects I've worked on.
+- 👨‍💻 Check out my LinkedIn account at www.linkedin.com/in/oumaima-jary-6aa555232 to see some of the projects I've worked on.
 
 
 ### Connect with Me :
